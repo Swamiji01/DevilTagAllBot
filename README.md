@@ -8,7 +8,7 @@
 </p>
 <p align="center"><a href="https://t.me/raichu_support"><img align="center" src="https://img.shields.io/badge/Join-Official%20Channel-blue.svg?style=for-the-badge&logo=Telegram">
 </p>
-<p align="center"><a href="https://t.me/tele_family_69"><img src="https://telegra.ph/file/06bab8d2aca8660c3b487.jpg" width="300"></a></p>
+<p align="center"><a href="https://t.me/tele_family_69"><img src="https://te.legra.ph/file/db7a18d702437595cd9da.jpg" width="300"></a></p>
 
 <p align="center">
     ## 𝗗𝗘𝗣𝗟𝗢𝗬 𝗢𝗡 𝗛𝗘𝗥𝗢𝗞𝗨 🚀
